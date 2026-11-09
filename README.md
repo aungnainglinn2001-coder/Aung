@@ -4,7 +4,8 @@
 ![Aung Naing Lin Profile Photo](Profile.JPG)
 
 # Aung Naing Lin
-## Food & Beverage Specialist | Personal Portfolio
+
+## Food & Beverage Specialist
 ---
 ## Profile
 Soon to graduate in Hospitality Industry Management, I bring a well-rounded foundation spanning front-of-house service, mixology, and kitchen assistance. Having refined my skills through a luxury F&B apprenticeship at The Tokyo EDITION, Ginza, I deliver exceptional guest experiences rooted in attention to detail and team collaboration. Certified in professional bartending, I am seeking to leverage my leadership and operational strengths as an F&B Specialist, Restaurant Supervisor, or Bartender.
